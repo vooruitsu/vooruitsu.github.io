@@ -33,4 +33,4 @@ een artikel over verschillende zaken die spelen in de samenleving.
 
 **Vooruit! Vooruit! En geen stap achteruit.**
 
-**- De Schrijver**
+**De Schrijver**
